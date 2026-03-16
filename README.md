@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hii !!<br><br>STEM student based in Switzerland, (lowkey wannabe Computer engineer)<br>randomly coding random projects, check them out. :) bye!
+Hii !!<br><br>STEM student based in Switzerland, (wannabe Computer engineer)<br>randomly coding random projects, check them out. :) bye!
 
 
 ## 🌐 Socials:
